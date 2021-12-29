@@ -1,0 +1,7 @@
+- 👋 @miskolol
+- 👀 Jsem programator
+- 🌱 Zajima me priroda
+- 💞️ Neboj se mi napsat na discord Secretak_#4568
+- 🐤 Mam rad KFC
+- 😂 Nekdy chcipnu smichy
+- ☕ Piju kafe kazdy den
